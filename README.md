@@ -6,6 +6,7 @@ Yeah! Just fuck baidu ai.
 
 Welcome to add more.
 
+- [百度副总裁又出事，专坑公关部？](https://mp.weixin.qq.com/s/s8IGvh35Y1BIJVOaarT7rg)
 - [百度发布开盒事件声明——盘点近年来百度陷入争议的部分事件](https://mp.weixin.qq.com/s/RcurvmkVL__5WnDv3O55hQ)
 - [花1700亿搞AI，如今却被群嘲，百度到底冤不冤？](https://mp.weixin.qq.com/s/D2cGbc3ypPDMTOloOXhYqw)
 - [脑子不够，肚子来凑？百度网盘AI文案挨骂不冤](https://mp.weixin.qq.com/s/I6Zx8bmhiZ7a3FdhQ0GSfQ)
